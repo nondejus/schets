@@ -1,2 +1,0 @@
-# schets
-stilleven
